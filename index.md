@@ -1,4 +1,5 @@
 # Asim Raha, BME, ME- Mech
+![Asim Raha](asim-raha.jpg)
 E-mail: raha.asim50@gmail.com, Mobile: +91 7980647752<br/>
 Whatsapp: +91 9674132370, Residence: +91 33 23596696
 
